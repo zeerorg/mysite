@@ -1,0 +1,1 @@
+Previous site was good but lacked a lot of UI (looked a 'bit' ugly). So thought let's give another try.
